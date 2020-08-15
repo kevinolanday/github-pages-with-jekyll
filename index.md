@@ -1,6 +1,3 @@
-# Welcome to my blog
-
-
 Woke up late today
 
 Laid there for an hour or two

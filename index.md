@@ -1,3 +1,10 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+
+Woke up late today
+
+Laid there for an hour or two
+
+Looking at the whole wide world
+
+And wondering about a **spaceman**
